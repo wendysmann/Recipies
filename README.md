@@ -1,2 +1,4 @@
-# Recipies
-This is a test repository for recipies 
+# Recipes
+This is a test repository for recipes 
+
+** Hello World! ** 
