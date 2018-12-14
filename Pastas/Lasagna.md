@@ -38,4 +38,4 @@ One large, deep pan for the ragu
 * Try using goats cheese and milk for the béchamel sauce. Sainsbury's and Safeways both sell a goat's cheese that's almost like cheddar in consistency. Perfect for béchamel sauce.
 * Look for canned tomatoes in 'rich tomato juice'. They're a bit more expensive, but definitely worthwhile
 * Fresh basil and pepper are a must.
-* Try it with minced lamb
+* Try it with minced lamb (blech!)
